@@ -1,1 +1,0 @@
-# hecparisentrepreneurship-hecparisentrepreneurship.github.io
